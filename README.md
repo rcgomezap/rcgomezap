@@ -1,5 +1,5 @@
 # 💫 About Me:
-I like to build stuff
+I like to build stuff and fly drones
 
 
 ## 🌐 Socials:
